@@ -1,1 +1,1 @@
-🧨 2023 ～ Chinese New Year 
+Innovation · Practice · Creation
